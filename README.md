@@ -14,3 +14,10 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+🔭 I’m currently working on improving my cybersecurity skills
+🌱 I’m currently learning about history, as I’m a history buff
+💬 Ask me about cybersecurity or history
+📫 How to reach me: jhahn8985@gmail.com
+😄 Pronouns: he/him
+⚡ Fun fact: I enjoy farm work 🚜
